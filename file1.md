@@ -1,3 +1,3 @@
-Il était une fois la coupe de Nolan
+Il était une fois
 
 Esteban je t'aime
